@@ -1,0 +1,2 @@
+- 👋 Eu sou @Dollyane
+- 👀 Estou interresada em computação
